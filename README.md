@@ -17,5 +17,5 @@ My goal is to showcase my projects, collaborate with like-minded individuals, an
 You can find me screenwriting, or creating music. I believe creativity fuels innovation!
 
 📫 Let’s Connect:
-I’d love to connect! Reach out via email at agyeibacchus1@gmail.com or check out my LinkedIn.
+I’d love to connect! Reach out via email at agyeibacchus1@gmail.com or check out my [LinkedIn](www.linkedin.com/in/agyei-bacchus) .
 
